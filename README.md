@@ -1,4 +1,4 @@
-### Olá! Essa e uma conta compartilhada entre 3 pessoas para o desevouvimento de um projeto
+### Olá! Essa e uma conta compartilhada entre 3 pessoas para o desevolvimento de um projeto
 
 <br>
 
